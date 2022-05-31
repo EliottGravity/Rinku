@@ -1,2 +1,2 @@
 # Rinku
-Le forum de Rinku !
+Mon vlad est pxel !
